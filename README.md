@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate for tipps
 - 📫 How to reach me mail
 - 😄 Pronouns: he/his/him
-- ⚡ Fun fact: I'm lost on this app
+- ⚡ Fun fact: I'm a bad beginner 😂 
 
 <!---
 Jxstin54/Jxstin54 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
